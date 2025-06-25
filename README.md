@@ -1,4 +1,4 @@
 # learning
 just learning things
 <br>
-author- SHIVAM SHUKLA
+author- SHIVAM SHUKLA(college student)
